@@ -1,2 +1,2 @@
 # lukereedy-A-little-about-me
-I am an aspiring cybersecurity professional looking to break into the field. I am currently enrolled in a cybersecurity bootcamp with fullstack academy and am set to graduate in july. Some of the things i like to do outside of learning  
+I am an aspiring cybersecurity professional looking to break into the field. I am currently enrolled in a cybersecurity bootcamp with fullstack academy and am set to graduate in july. Some of the things i like to do outside of learning are fishing, playing music, video games, enjoying time with my wife and one year old son, and enjoying time with other family. I consider myself a lifelong learner and am always trying to find new ways to learn and grow.
